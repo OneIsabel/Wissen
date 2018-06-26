@@ -1,6 +1,8 @@
-# Wissen
+# Anorganische Chemie
+## Atomaufbau
+Ja das ist ja wohl so aufgbeaut deswegen gilt das ja mey mittagspause.
 
-Die Webseite ist die Zukunft unbegrenzten Wissenzugangs unabhängig von jeglicher Plattform. Mit schwarzem hintergrund auf weißem Text spare ich zusätzlich noch Handyenergie:::::::D
 
+# Ingenieursmathematik 1
 
-## Quotes
+# Irgendwas
